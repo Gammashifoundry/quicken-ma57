@@ -1,4 +1,4 @@
-# 
+# rare QuickBooks para PC scripts é o melhor QuickBooks para PC scripts com relatorios financeiros e permissoes de usuario. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
